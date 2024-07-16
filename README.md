@@ -1,4 +1,4 @@
-## Hi there 👋 It's me Vijay Sekar T G
+## "Welcome to my world, I'm Vijay Sekar T G!"
 
 IT Techie | AI Evangelist
 <img align="right" width="370" height="290" src="https://https://www.linkedin.com/in/vijaysekartg/">
